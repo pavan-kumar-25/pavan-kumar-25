@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently a STUDENT<br>👯 I’m looking to collaborate on WEB DEVELOPMENT<br>🤝 I’m looking for WORK<br>🌱 I’m currently learning MOBILE APPLICATIONS<br>💬 Ask me about TECHNICAL STUFF<br>⚡ Fun fact ABOUT ME IS HAVE FUN WITH LEARNING
+🔭 I’m currently a STUDENT<br>👯 I’m looking to collaborate on WEB DEVELOPMENT and CYBER SECURITY<br>🤝 I’m looking for WORK<br>🌱 I’m currently learning basic of CYBER SECURITY<br>💬 Ask me about TECHNICAL STUFF<br>⚡ Fun fact ABOUT ME IS HAVE FUN WITH LEARNING...!
 
 
 ## 🌐 Socials:
